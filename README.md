@@ -1,4 +1,5 @@
-<img width="2048" height="2048" alt="hj" src="https://github.com/user-attachments/assets/3021a8fd-7570-4a06-a018-845176878098" />
+<img width="1603" height="935" alt="fgfgfdgfdg" src="https://github.com/user-attachments/assets/f18b256a-40c7-41de-999c-a86f2c82f2a1" />
+
 
 <p align="center">
   <a href="https://tiktok.com/@dogletsky">tiktok</a>ㅤ✦ㅤ
